@@ -1,4 +1,4 @@
-### Olá! Eu sou o Lucas Schneider 👋
+### Olá! Eu sou o Lucas Schneider 👋 (NEW)
 
 
 [![Instagram](https://img.shields.io/badge/Instagram-E4405F?style=for-the-badge&logo=instagram&logoColor=white)](https://www.instagram.com/lucasschneeider?igsh=MTlta2NxNG83ZnN0eg%3D%3D&utm_source=qr)
